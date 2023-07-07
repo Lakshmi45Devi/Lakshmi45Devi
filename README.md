@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Lakshmi45Devi
 - 👀 I’m interested in learning new things
-- 🌱 I’m currently learning to code and I'm also learning French
+- 🌱 I’m currently learning to code
 - 📫 How to reach me email- lakshmidevi452000@gmail.com, Insta - Lakshmi_45
 
 <!---
